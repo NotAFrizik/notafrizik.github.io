@@ -1,2 +1,2 @@
 # Мой официальный сайт
-https://notafrizikqq.github.io
+https://notafrizik.github.io
